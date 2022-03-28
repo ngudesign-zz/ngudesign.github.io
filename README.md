@@ -1,2 +1,0 @@
-# ngudesign.github.io
-Coursework
